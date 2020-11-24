@@ -7,4 +7,4 @@ I love learning, sharing what I know, and doing CrossFit :weight_lifting_man:.
 * :memo: I would like to do an engineering blog, but I am too dumb or lazy? Who knows :shushing_face:
 * :family_man_woman_girl: My little girl gets my full attention.
 * :money_with_wings: I hate cash, but am enthusiastic about financial markets.
-* :bird: Follow my [Twitter account](https://twitter.com/mrgrauel) where I make semi-regular attempts at tweeting cool stuff.
+* :bird: Follow me on [Twitter](https://twitter.com/mrgrauel) where I make semi-regular attempts at tweeting cool stuff.
